@@ -1,1 +1,1 @@
-# przykladowe
+# w TRAKCIE REKONSTRUKCJI 
